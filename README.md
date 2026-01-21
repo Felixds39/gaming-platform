@@ -1,1 +1,1 @@
-# gaming-platform
+THE IRON TRIBE - Biblical Gaming Platform
